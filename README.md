@@ -11,7 +11,7 @@ And if you are under 17 please DNI on ponytown.
 
 I have memory loss, sorry if I forget anything important!
 
-If you're the one of has my f/o so i hade to mute you or hide you, sorry.
+If you have one of my f/o so i hade to mute you or hide you, sorry.
 
 Or if you make 'weak' or 'thwomp' jokes, or are generally weird towards my Infinite pony I'm not going to entertain you, sorry.
 
