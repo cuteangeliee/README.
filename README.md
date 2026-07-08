@@ -7,7 +7,7 @@ I idle often and rarely speak unless spoken to. I promise I'm nice, though I am 
 
 Don't be afraid to interact with me, I enjoy talking to new people (I'm just very shy + anxious)
 
-And Minors please DNI on ponytown.
+And if you are under 17 please DNI on ponytown.
 
 I have memory loss, sorry if I forget anything important!
 
