@@ -12,7 +12,7 @@
 
 <p>Or if you make 'weak' or 'thwomp' jokes, or are generally weird towards my Infinite pony I'm not going to entertain you, sorry.</p>
 
-<p>!! PLEASE READ !!</p>
+                                    <p>!! PLEASE READ !!</p>
 
 <p>If you had problem with me, please tell me! I won't know what i did wrong if you didn't tell me.</p>
 
