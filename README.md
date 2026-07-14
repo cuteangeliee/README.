@@ -30,3 +30,4 @@ Also do not copy my ponies / my idea / my oc/sona's, you have to give me a permi
 
 Wanna know about me more? Ask me, always free to hear any questions (but not personal questions please).
 
+(I DID MY BEST I SWEAR THIS TIME)
