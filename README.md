@@ -10,7 +10,7 @@ But I'm a kind person! And i promise I'm nice! Don't be afraid to intract, i enj
 
 I like to make ponies so much!! when i have my breaktime i do new ponies! (Also making much ponies of infinite so don't be confused i love him and i'm very nonsharing of him, unless if you are a close friend or i had allowed that.)
 
-And if you are a stranger and who is always on S.T.H area and main as Infinite pony, so i have to just simply block/hide you, sorry!! >_< (it's because it makes my stomach sick so i'm to help myself instead.)
+And if you are a stranger and who is always on S.T.H area and main as Infinite pony, so i have to just simply block/hide you, sorry!! >_< (it's because it makes my stomach sick so i'm trying to help myself instead.)
 
 I like drawing and make fun and jokes with my friends.
 
