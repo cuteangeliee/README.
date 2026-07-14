@@ -24,7 +24,7 @@ If you are chatting with me don't think that means we are friends, I don't reall
 
 You have problem with me? Please tell me! I just don't remember things much and won't know what i did! please respect that. (Just if you didn't tell me so i guess i will have to mute you, sorry, until i know what i did wrong because you didn't tell me.)
 
-I do not like to cause problem much and i do not like to harrass anyone, cause them to be sad.
+I do not like to cause problem much and i do not like to harrass anyone or cause them to be sad.
 
 Also do not copy my ponies / my idea / my oc/sona's, you have to give me a permission first or do one for yourself, please.
 
