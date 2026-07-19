@@ -4,7 +4,7 @@ I'm Rookie/Angel/Nick! ♡
 
  I'm 14 year old! my birthday in 5/20 !!
 
-I have bad memory and very shy + anxious + overthink much, while i'm speaking to some people on PT i type fast and you will see mistakes in my write sometimes. !!
+I have bad memory and very shy + anxious + overthink much, while i'm speaking to some people on PT i type fast and you will see mistakes in my gramnar sometimes. !!
 
 But I'm a kind person! And i promise I'm nice! Don't be afraid to interact, i enjoy to speak to new people.
 
