@@ -26,7 +26,7 @@ You have problem with me? Please tell me! I just don't remember things much and 
 
 I do not like to cause problem much and i do not like to harrass anyone or cause them to be sad.
 
-Also do not copy my ponies / my idea / my oc/sona's, you have to give me a permission first or do one for yourself, please.
+Also "Do NOT copy my ponies or my ideas or even my sonas/ocs" please! Thank you.
 
 Wanna know about me more? Ask me, always free to hear any questions (but not personal questions please).
 
